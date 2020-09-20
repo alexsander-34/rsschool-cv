@@ -12,4 +12,4 @@
 * ## Education
 #### Third-year student of BSUIR - Faculty of Information Technologies and Control
 * ## English
-#### Pre-Intermediate (A2)
+#### Pre-Intermediate ( A2)
